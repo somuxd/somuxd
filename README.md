@@ -5,7 +5,7 @@ Email Me 👉 ✉️ **somusomyaranjanbehera@gmail.com** For Collaboration/Proje
 
 - 🤔 **I’m looking for help with:** Your project here
 - 💬 **Ask me about:** Collaboration
-- 😄 **Pronouns:** Somu Sir
+- 😄 **Pronouns:** Somya Sir
 - ⚡ **Fun fact:** coding coding coding i don't like it, But Coding Like Me, I Can't avoid
   
 ## 🌐 Socials:
